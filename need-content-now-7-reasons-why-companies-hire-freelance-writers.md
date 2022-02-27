@@ -32,8 +32,12 @@ Freelancers have experience working with a variety of clients, on a variety of t
 
 Your company can find freelancers quickly and efficiently. An estimated 42% of the American workforce, or 67 million Americans, are freelancing part-time this year. That is a massive talent pool to chose from. You can easily post job openings on sites such as [Fiverr](fiverr.com), [UpWork](upwork.com), [Problogger](problogger.com), and others. Freelancers will apply or bid on your projects and you can search through applications to find the freelance writer that best fits your needs. 
 
-### Flexible Schedule & Remote Work
+### 7. Flexible Schedule & Remote Work
 
 The majority of freelancers work from home meaning you can recruit freelancer writers that live anywhere. Your company needs last-minute content to respond to an emerging issue? Because freelancers work by the hour or per word, they can come to your rescue, even after hours. If you need work completed on the weekends or late at night, your full-time salaried employees are unlikely to be receptive to a request for immediate work. Freelancers know they can capitalize on short deadlines and are usually happy to help in these situations. 
+
+## Ready to Hire?
+
+If your company wants to publish more content then you need more writers. To solve this problem you can hire more full-time employees or you can decide to try something new. The payoff can be huge. Once your company recognizes the immense value skilled freelancers provide, then it’s time to act. Have your recruiters reach out to promising individuals on LinkedIn. Create a business account with UpWork and you can be placing freelance jobs in no time. Make sure to set a competitive rate to field interest from high-quality candidates. If you select Fiverr, you can browse freelancer gigs in your area of interest and even select from Fiverr Pro candidates. The candidates are nearly endless, so bring in some fresh writing talent and get the articles rolling. 
 
 
